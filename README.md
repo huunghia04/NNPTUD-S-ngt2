@@ -1,1 +1,3 @@
-# NNPTUD-S-ngt2
+# NNPTUD-S2
+Trương Hữu Nghĩa
+2280602087
